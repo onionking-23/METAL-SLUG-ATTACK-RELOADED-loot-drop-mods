@@ -1,0 +1,1 @@
+# METAL-SLUG-ATTACK-RELOADED-loot-drop-mods
